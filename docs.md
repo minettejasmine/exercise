@@ -3,4 +3,6 @@ delivery service.
 
 Note that Cheery automatic robotic delivery service is totally safe to use for children,
 
-pets, wildlife, and trees.
+pets, wildlife, and trees. Save the planet.
+
+The toothbrush requires peace on earth. We stand with Ukraine.
